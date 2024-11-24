@@ -1,1 +1,1 @@
-https://kimthien130897.github/sinhnhathuyen/
+https://kimthien130897.github.io/sinhnhathuyen/
